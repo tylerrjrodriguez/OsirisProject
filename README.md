@@ -3,15 +3,15 @@ This project is the biggest project I've ever attempted. Thanks for making it th
 
 ## Unraveling
 
-This movement is the opener. It's about the journey towards a dream, and what it takes to push towards the dream.
+Unraveling, the first movement, takes inspiration from both Unraveling by Andrew Boyson, Jr. and Paprikash by Julie Giroux. It begins the story of a person who wants to achieve their dreams. This movement is all about succeeding at your dream; at the cost of doing it the wrong way. It climaxes right before F, where the person’s repercussions finally begin piling up until they all come crashing down at the very end.
 
 ## On a Hymnsong
 
-This movement is the ballad. It's all about picking yourself back up after a massive problem in your life, and reconciling with your own happiness and good mental health.
+The second movement of the show, the ballad, takes its inspiration from On a Hymnsong of Phillip Bliss by David Holsinger. It’s about picking yourself up after a massive failure and reconciling with not only your happiness but your mental health.
 
 ## Shadow Rituals
 
-This movement is the closer. It's about self control, and forcing yourself to push yourself past the enemies you made getting to where you are.
+Picking up straight after the events of On a Hymnsong, Shadow Rituals is about using the knowledge you gained in picking yourself back up to get yourself to the top the right way. However, you feel the need to get revenge on those who brought you down, so right before R, you attempt to do so; but quickly realize your wrongdoings, and do things the right way.
 
 ## Final Words
 
